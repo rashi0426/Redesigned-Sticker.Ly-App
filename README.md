@@ -1,0 +1,1 @@
+# Redesigned-Sticker.Ly-App
